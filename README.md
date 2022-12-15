@@ -1,13 +1,17 @@
-Chen Zhuoran(陈卓然)
+Zhuoran CHEN
 chenzhr25@mail2.sysu.edu.cn  
 (+86) 135-7045-2644 
 ### Education Background
 Master of Finance, Lingnan College Sun Yat-Sen University       2021,09 - present
 
 Bachelor of Economics, Lingnan College Sun Yat-Sen University   2017,09 - 2021,06
+
 Warwick Business School, University of Warwick                2019,09 - 2019,12
+
 School of Social and Behavioral Sciences, NanJing University       2022,07-present
+
 School of Economics and Management, University of Chinese Academy of Sciences   2022,07-present
+
 International Mathematics Program (including Differential Equations (Ranked first), Real Analysis (Ranked First), Stochastic Process (Ranked First), Time Series Analysis (Ranked first) and etc.)
 ### Professional Skills
 Excellent English Skills (IELTS: 7.5 (Listening 8.5；Reading 8.5), GRE: 326 (Quantitative 169; AW 4.0)).
