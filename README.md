@@ -3,6 +3,7 @@ chenzhr25@mail2.sysu.edu.cn
 (+86) 135-7045-2644 
 ### Education Background
 Master of Finance, Lingnan College Sun Yat-Sen University       2021,09 - present
+
 Bachelor of Economics, Lingnan College Sun Yat-Sen University   2017,09 - 2021,06
 Warwick Business School, University of Warwick                2019,09 - 2019,12
 School of Social and Behavioral Sciences, NanJing University       2022,07-present
