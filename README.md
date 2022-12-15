@@ -47,7 +47,7 @@ Third Prize in Mathematical Contest in Modeling (2019).
 
 ### Publications
 
-Optimal Coupon Cooperation policy of E-commerce Platforms and E-tailers and its benefit (submitted to Journal of Management of Sciences in China and currently in 1st Revise-and-Resubmit).
+Optimal Coupon Cooperation policy of E-commerce Platforms and E-tailers and its benefit (Published in *Systems Engineering - Theory \& Practice*).
 
 The impact of uncertainty shock to consumption under different confidence regimes---Based on stochastic-uncertainty-in-mean TVAR model.
 
