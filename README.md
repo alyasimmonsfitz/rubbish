@@ -1,5 +1,3 @@
-Zhuoran CHEN
-
 chenzhr25@mail2.sysu.edu.cn  
 
 (+86) 135-7045-2644 
