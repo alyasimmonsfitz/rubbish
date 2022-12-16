@@ -1,6 +1,6 @@
-chenzhr25@mail2.sysu.edu.cn  
+Email: chenzhr25@mail2.sysu.edu.cn  
 
-(+86) 135-7045-2644 
+Tel: (+86) 135-7045-2644 
 
 ### Education Background
 Master of Finance, Lingnan College Sun Yat-Sen University       2021,09 - present
@@ -78,12 +78,4 @@ Publications in Lianxh：Stata: Local regression distribution estimators, Calcul
 2021: Helped Professor Zeng Yan of Lingnan College to write a literature review of regional coordinated development using CiteSpace, and conducted research on the optimal subsidy mechanism from the perspective of consumption chain and supply chain.
 
 2021: Helped Professor Zeng Yan of Lingnan College in writing the 2019 Natural Science Foundation Summary Report and writing review comments for many times and giving unique insights to the shortcomings of the manuscripts.
-
-
-
-
-
-
-
-
 
